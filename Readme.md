@@ -89,7 +89,7 @@
 
 ## 🤝 Let's Connect
 
-* 📫 Email: [vamshibharadwaj19@gmail.com](mailto:vamshibharadwaj19@gmail.com)
+* 📫 Email: [vamshibharadwaj19@gmail.com](mailto:vamshi)
 
 ---
 
